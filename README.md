@@ -1,7 +1,7 @@
 -  Hi, I’m Kim
 -  I’m interested in drawing 
 -  I’m currently learning code 
--  I’m looking forfriends
+-  I’m looking for friends
 -  How to reach me (@sleepy_me900)
 -  Fun fact: I'm so shy girl
 
